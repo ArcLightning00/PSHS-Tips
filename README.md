@@ -7,4 +7,4 @@ then coding this website is not for you). Please do so with effort. This is not 
 us to our third rule.
 // Third: Have respect. We are a team here. We are working together to acheive a good goal. If you need any help. The team is gladly here at your service. Don't hesitate to ask :).
 // Fourth: Enjoy. Most people don't like to be forced to do something. 
-// Fifth: This isn't all what you do. You still have studies, friends, family. Take a break if you want maybe. Just be sure to come back. We can't do this alone. Good Luck peeps :).
+// Fifth: This isn't all what you do. You still have studies, friends, family, religion, etc. Take a break if you want maybe. Just be sure to come back. We can't do this alone. Good Luck peeps :).
